@@ -7,6 +7,8 @@
 --------------------------------------------------------------------------------------------------------------------------------
 ### 1.Project Motivation
 
+https://hakanateslii.medium.com/what-does-a-heart-attack-depend-on-8f6192503174
+
 As many of you know, Danish player Eriksen suffered a heart attack in the 45th minute of the match between Denmark and Finland in the Euro2020 Tournament. This view scared the whole world and me.<br />
 <br />
 So what is this Heart Attack? What could be causing this?<br />
